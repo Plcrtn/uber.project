@@ -1,0 +1,1 @@
+opisivau mir vokrug i hochu plakat'
